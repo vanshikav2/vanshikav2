@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, My name is Vanshika Vanshika. I am currently doing Undergraduate degree at University of Toronto with a Bachelor of Science.
 
 <!--
 **vanshikav2/vanshikav2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
